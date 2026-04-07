@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GOAC951226MVZMLR04
+GOAC951226MVZMLR04
